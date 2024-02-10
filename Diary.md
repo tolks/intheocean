@@ -1,1 +1,0 @@
-A diary of spending as many days in the ocean as possible during my sabbatical. 
